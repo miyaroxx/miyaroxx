@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @miyaroxx
+- 👀 I’m interested in F1!
+- 🌱 I’m currently learning how to code in HTML and Javascript
+- 💞️ I’m looking to collaborate on nothing for now!
+- 📫 @miyaroxx on discord!
+- 😄 Pronouns: Him
+- ⚡ Fun fact: I don't know a full language yet
